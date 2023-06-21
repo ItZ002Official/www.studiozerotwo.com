@@ -1,4 +1,4 @@
-# www.studiozerotwo.com
+Koi# www.studiozerotwo.com
                Studio ZeroTwo
 
 Studio-ZeroTwo
@@ -21,6 +21,10 @@ love our work.
 
 At that time Kartik was thinking about the name he want to give to its Animation Studio.At that time
 Kartik Loves One Anime character "ZeroTwo" 
+
+"ZeroTwo" was a fictional character from 2018 Japanese series name Darling in the Franxx
+and it was most favourite anime character Kartik likes so he decide to name his Animation studio
+after her name and soon decide to buy her character liscence and copyright...
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⠎⠀⠀⡞⡷⡄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⢧⠘⡍⢳⡀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⡞⠀⠀⢠⡇⡇⠹⡄⠀⣀⡠⠤⠴⠒⠒⠒⠒⠒⠒⠒⠢⠤⠤⣀⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⡔⡆⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⢇⠹⡄⢧⠀⠀
