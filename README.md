@@ -23,7 +23,6 @@ At that time Kartik was thinking about the name he want to give to its Animation
 Kartik Loves One Anime character "ZeroTwo" 
 
 "ZeroTwo" is a fictional character from 2018 Japanese series name Darling in the Franxx
-and it was most favourite anime character Kartik likes so he decide to name his Animation studio
-after her name.
+and it was most favourite anime character Kartik likes so he decide to name his Animation studio after her name.
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
